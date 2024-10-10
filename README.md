@@ -5,6 +5,7 @@
 projects I've completed either in school or at home. Thanks for checking it out! Also,<br>
 check out my portfolio page:<br><br>
 
-https://natenasteff.com </p>
+https://n-squared.com
+https://thebillsband.com </p>
 
 # Ciao!
